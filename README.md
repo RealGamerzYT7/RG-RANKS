@@ -12,4 +12,4 @@ https://discord.com/invite/VrpQXTnXMM
 - Java & Bedrock & Mcpe
 - Free
 
-##Spoiler Images!
+## Spoiler Images!
