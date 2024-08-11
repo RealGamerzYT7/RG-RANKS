@@ -15,7 +15,7 @@ https://discord.com/invite/VrpQXTnXMM
 ## Spoiler Images!
 
 
-
+## Ranks Prefixes!
 | Rank             | Prefix                                                                |
 | ----------------- | ------------------------------------------------------------------ |
 | Admin  |  |
