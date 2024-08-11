@@ -11,3 +11,5 @@ https://discord.com/invite/VrpQXTnXMM
 - No plugins needed
 - Java & Bedrock & Mcpe
 - Free
+
+##Spoiler Images!
