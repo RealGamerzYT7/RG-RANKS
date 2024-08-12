@@ -55,3 +55,10 @@ https://discord.com/invite/VrpQXTnXMM
 If You Are Making A Video On My Ranks Pack You Should Give me Credit In Your Video and in That video Descriptions!
 put my channel link
 https://youtube.com/@realgamerzyt
+
+## SUBSCRIBE TO ME!
+https://youtube.com/@realgamerzyt
+
+## SUPPORT NEEDED?
+Join My Discord If U Have Any Problem With The Pack. I Can Help You!
+https://discord.com/invite/VrpQXTnXMM
