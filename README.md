@@ -50,3 +50,8 @@ https://discord.com/invite/VrpQXTnXMM
 | Yellow |  |
 | Youtube |  |
 | Member |  |
+
+## For Content Cretors
+If You Are Making A Video On My Ranks Pack You Should Give me Credit In Your Video and in That video Descriptions!
+put my channel link
+https://youtube.com/@realgamerzyt
