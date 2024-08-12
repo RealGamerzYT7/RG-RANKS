@@ -51,7 +51,7 @@ https://discord.com/invite/VrpQXTnXMM
 | Youtube |  |
 | Member |  |
 
-## For Content Cretors
+## For Content Creators
 If You Are Making A Video On My Ranks Pack You Should Give me Credit In Your Video and in That video Descriptions!
 put my channel link
 https://youtube.com/@realgamerzyt
