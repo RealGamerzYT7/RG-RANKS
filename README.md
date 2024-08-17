@@ -12,6 +12,8 @@ https://discord.com/invite/VrpQXTnXMM
 - No plugins needed
 - Java & Bedrock & Mcpe
 - Free
+- Custom Server Logo
+- Join my Discord And I will Put The Logo U Give me in The Pack For You!
 
 ## Spoiler Images!
 
