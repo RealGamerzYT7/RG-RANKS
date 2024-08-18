@@ -6,6 +6,9 @@ I Will Update It Every 1 or 2 Months
 Add New Ranks That You Suggest Me To Add It You Can Suggest Me The Ranks in My Discord Server!
 https://discord.com/invite/VrpQXTnXMM
 
+> [!IMPORTANT]
+Must Read To The End Of This Page!
+
 ## Features
 
 - Geyser Compatible
