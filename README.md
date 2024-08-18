@@ -12,6 +12,9 @@ https://discord.com/invite/VrpQXTnXMM
 - No plugins needed
 - Java & Bedrock & Mcpe
 - Free
+- Ranks
+- Crates Tiers
+- Shop and Server Tags
 - Custom Server Logo
 - Join my Discord And I will Put The Logo U Give me in The Pack For You!
 
