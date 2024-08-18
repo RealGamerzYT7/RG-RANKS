@@ -98,8 +98,15 @@ https://youtube.com/@realgamerzyt
 ## SUBSCRIBE TO ME!
 https://youtube.com/@realgamerzyt
 
-# Download Here 👇🏻 
-RGRANKS 1.21 JAVA
+# Download Here!
+- **RGRANKS 1.21 JAVA**
+
+- **RGRANKS 1.20.6 JAVA**
+- SOON...
+- RGRANKS OTHER VERSIONS SUPPORT PACKS COMING SOON...
+
+- **RGRANKS MCPE/MCBE**
+- 
 
 
 ## Paid Ranks
