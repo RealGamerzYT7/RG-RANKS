@@ -99,11 +99,16 @@ https://youtube.com/@realgamerzyt
 https://youtube.com/@realgamerzyt
 
 # Download Here!
-- **RGRANKS 1.21 JAVA**
-
-- **RGRANKS 1.20.6 JAVA**
-- SOON...
-- RGRANKS OTHER VERSIONS SUPPORT PACKS COMING SOON...
+- **RGRANKS 1.21-1.21.1 JAVA**
+-
+- **RGRANKS 1.20.5-1.20.6 JAVA**
+- 
+- **RGRANKS 1.20.3-1.20.4 JAVA**
+-
+- **RGRANKS 1.20-1.20.2 JAVA**
+-
+- **RGRANKS 1.19-1.19.4 JAVA**
+- 
 
 - **RGRANKS MCPE/MCBE**
 - 
