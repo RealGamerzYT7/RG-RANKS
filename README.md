@@ -23,40 +23,67 @@ https://discord.com/invite/VrpQXTnXMM
 
 
 ## Ranks Prefixes!
-| Rank             | Prefix                                                                |
-| ----------------- | ------------------------------------------------------------------ |
-| Admin  |  |
-| Blue   |  |
-| Builder |  |
-| Designer |  |
-| Dev |  |
-| Devlarge |  |
-| Donator |  |
-| Elite |  |
-| Elite+ |  |
-| Event staff |  |
-| God |  |
-| Green |  |
-| Helper |  |
-| Manager |  |
-| Media |  |
-| Mod |  |
-| Modlarge |  |
-| Mvp |  |
-| Mvp+ |  |
-| Mvp++ |  |
-| Noob |  |
-| OG |  |
-| Owner |  |
-| Pro |  |
-| Red |  |
-| Tiktok |  |
-| Twitch |  |
-| Vip |  |
-| Vip+ |  |
-| Yellow |  |
-| Youtube |  |
-| Member |  |
+Admin 
+Blue 
+Booster 
+Boy 
+Boys 
+Builder 
+Clock 
+Common crate 
+Crates 
+Developer 
+Dev 
+Discordi 
+Dollar 
+Elite 
+Elite+ 
+Epic crate 
+Executive 
+Girl 
+Girls 
+God 
+Grass block 
+Green 
+Helper 
+Instai 
+King 
+Knight 
+Legend 
+Legendary crate 
+Lord 
+Manager 
+Media 
+Member 
+Moderator 
+Mod 
+Mvp 
+Mvp+ 
+Mvp++ 
+Mythical crate 
+Noob 
+Owner 
+Player 
+Pro 
+Rank 
+Ranks 
+Rare crate 
+Red 
+Rupee 
+scoin 
+Server 
+Shop 
+Skull 
+Sr admin 
+Star 
+Sword 
+Tiktok 
+Trophy 
+Vip 
+Vip+ 
+Vote crate 
+Youtube 
+Youtubei 
 
 ## For Content Creators
 If You Are Making A Video On My Ranks Pack You Should Give me Credit In Your Video and in That video Descriptions!
