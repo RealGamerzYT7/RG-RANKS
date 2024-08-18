@@ -108,7 +108,7 @@ https://youtube.com/@realgamerzyt
 - **RGRANKS 1.20-1.20.2 JAVA**
 -
 - **RGRANKS 1.19-1.19.4 JAVA**
-- 
+- https://loot-link.com/s?8a4dd6af
 
 - **RGRANKS MCPE/MCBE**
 - 
