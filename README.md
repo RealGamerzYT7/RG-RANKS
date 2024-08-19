@@ -92,6 +92,8 @@ Must Read To The End Of This Page!
 
 ## For Content Creators
 If You Are Making A Video On My Ranks Pack You Should Give me Credit In Your Video and in That video Descriptions!
+don't put my pack in paylink other website you cannot do this!
+just give me github page link in description or in comments!
 put my channel link
 https://youtube.com/@realgamerzyt
 
