@@ -27,7 +27,6 @@ Must Read To The End Of This Page!
 
 ## Ranks Prefixes!
 - copy like this  boxes and paste it in chat or your tab or in scoreboard or in luckperms prefix to show that texture!
-- 
 | Ranks             | Prefixes                                                                |
 | ----------------- | ------------------------------------------------------------------ |
 | Admin |  |
