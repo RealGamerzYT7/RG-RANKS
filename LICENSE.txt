@@ -1,0 +1,53 @@
+FAITHFUL LICENSE
+Version 3 - 20th February 2023
+
+Copyright © Faithful Resource Pack
+
+
+You may do the following:
+
+
+1: Use our work as placeholders.
+
+2: Use our work as a base or reference for your own content (e.g. modded textures, content creator edits).
+
+3: Use a few textures that you cannot properly make, such as painting or particle textures.
+
+4: Distribute a modified copy of a pack as a content creator with your videos or streams.
+
+5: Use our work for adventure maps, server resource packs, mod textures, or data packs.
+
+
+By doing any of the above, you agree to follow these requirements:
+
+
+1: Give clear credit in an appropriate place (e.g. video descriptions, pack.mcmetas, listing descriptions).
+
+2: Link back to My Github Page, which you can find here:
+	Soon
+
+3: Don't take credit for work you didn't make and always give proper attribution to any work you use or modify. In addition, try to be somewhat specific about what you're using, as "RGRANKS to shows Textures in Minecraft World And Servers"  Just be honest about what you're using, use common sense when in doubt, and you'll be fine.
+
+4: Do not monetize content that contains any of our work, modified or not, under any circumstances. This includes locking your content behind a paywall (including the Minecraft Marketplace) or monetizing download links. Taking voluntary donations is still allowed, but if it feels like you're profiting off our work don't do it.
+
+5: Don't make your projects look official when they aren't. Examples of this behavior would include copying our branding or marking a project as "official" in a way that would confuse the average viewer into believing a project is official when it isn't.
+
+6: This file, unmodified, must be included in any content which contains any of our work.
+
+7: You Cannot Upload My Pack In Any Other Websites Like Mcpedl And Etc and paylinks etc stuff. Give My Github Page Link In The Video Description and comments!
+
+
+Exceptions:
+
+
+1: If you're doing anything privately or undistributed to our work (e.g. custom edit for personal use, unpublished add-ons, mod support, personal Minecraft server resource pack, or edits either by you or from different packs) you can safely disregard all of these requirements since you are not gaining unfairly from us in any form.
+
+
+We reserve the right to:
+
+
+1: Refuse the ability to use, distribute, or modify any work made by Me @RealGamerzYT for any person or group. This action would be final, generally only in the case of unusual circumstances.
+
+2: Take legal action if you do not comply with these guidelines.
+
+3: Change this license at any time for any reason.
