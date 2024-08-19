@@ -102,7 +102,7 @@ https://youtube.com/@realgamerzyt
 
 # Download Here!
 - **RGRANKS 1.13-1.21.1 JAVA**
-- wait...
+- https://loot-link.com/s?40e5b5e9
 
 - **RGRANKS 1.21.21.01 MCPE/MCBE**
 - wait...
