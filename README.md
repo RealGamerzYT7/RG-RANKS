@@ -102,8 +102,8 @@ https://youtube.com/@realgamerzyt
 - **RGRANKS 1.13-1.21.1 JAVA**
 - https://lootdest.org/s?f7a46f8d
 
-- **RGRANKS MCPE/MCBE**
-- 
+- **RGRANKS 1.21.21.01 MCPE/MCBE**
+- https://lootdest.org/s?f2d53590
 
 
 ## Paid Ranks
