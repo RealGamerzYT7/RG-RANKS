@@ -105,7 +105,7 @@ https://youtube.com/@realgamerzyt
 - https://lootdest.org/s?9f39e729
 
 - **RGRANKS 1.21.21.01 MCPE/MCBE**
-- https://lootdest.org/s?f2d53590
+- https://lootdest.org/s?0fc6e14a
 
 
 ## Paid Ranks
