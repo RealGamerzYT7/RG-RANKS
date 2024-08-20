@@ -8,6 +8,7 @@ https://discord.com/invite/VrpQXTnXMM
 
 > [!IMPORTANT]
 Must Read To The End Of This Page!
+Read License First!
 
 ## Features
 
