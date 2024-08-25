@@ -21,6 +21,7 @@ Read License First!
 - Shop and Server Tags
 - Custom Server Logo
 - Join my Discord And I will Put The Logo U Give me in The Pack For You!
+- limit - 10
 
 ## Spoiler Images!
 ![IMG_20240819_024611](https://github.com/user-attachments/assets/7e691980-99bd-4dbf-a9c3-7644ca6a7291)
