@@ -104,14 +104,6 @@ https://youtube.com/@realgamerzyt
 ## SUBSCRIBE TO ME!
 https://youtube.com/@realgamerzyt
 
-# Download Here!
-- **RGRANKS 1.13-1.21.1 JAVA**
-- https://loot-link.com/s?40e5b5e9
-
-- **RGRANKS 1.21.21.01 MCPE/MCBE**
-- https://loot-link.com/s?7cdab32f
-
-
 ## Paid Ranks
 Want Your Own Custom Ranks With Other Design And Colours? I Can Make It For You. You Have To Pay me For That!
 
