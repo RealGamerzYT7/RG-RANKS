@@ -108,7 +108,12 @@ https://youtube.com/@realgamerzyt
 ## Paid Ranks
 Want Your Own Custom Ranks With Other Design And Colours? I Can Make It For You. You Have To Pay me For That!
 
+## Support Me Donate And Be Patreon!
+Patreon Benifits 
+patreon role on discord
++2 Any Custom Ranks That i will add in RGRANKS
+
 ## SUPPORT NEEDED?
 Join My Discord If U Have Any Problem With The Pack. I Can Help You!
-https://discord.com/invite/VrpQXTnXMM
+https://discord.gg/RhtccZZFWx
 ![20240812_233727](https://github.com/user-attachments/assets/f1b09aa1-b47a-4c6d-b540-f7c3b5eea143)
