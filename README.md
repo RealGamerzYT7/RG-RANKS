@@ -120,16 +120,9 @@ if you Are In desktop mode or in pc u can just go to top and see right side the 
 
 ## Also Checkout My RGRANKS Pack!
 
-
-## Strength Gem:
-Right-click:
-Saturation, Strenght and Resistance (all level 2)
-
-Shift-click:
-An arena that keeps anyone from entering, practical to heal
-
-Left-click:
-A shockwave that sends everyone near flying and damages them
+## If You Want To Convert Your Items Adder Resource Pack or Any Custom Model data resource pack
+contact me through Discord I Will Convert it ( Paid )
+https://discord.gg/VrpQXTnXMM
 
 ## For Content Creators
 If You Are Making A Video On My Ranks Pack!
@@ -154,5 +147,5 @@ https://patreon.com/RealGamerzYT?utm_medium=unknown&utm_source=join_link&utm_cam
 
 ## SUPPORT NEEDED?
 Join My Discord If U Have Any Problem With The Pack. I Can Help You!
-https://discord.gg/RhtccZZFWx
+https://discord.gg/VrpQXTnXMM
 ![20240812_233727](https://github.com/user-attachments/assets/f1b09aa1-b47a-4c6d-b540-f7c3b5eea143)
