@@ -1,7 +1,7 @@
-RGRANKSV1 LICENSE
+LICENSE
 Version 1 - 19th August 2024
 
-Copyright © RG RANKS
+Copyright © RG DEVELOPER
 
 
 You may do the following:
