@@ -96,6 +96,10 @@ Read License First!
 | Youtube |  |
 | Youtubei |  |
 
+## Donate
+If You Donate Some Money It can be so helpful to ne and i appreciate it!
+![IMG_20250109_101015](https://github.com/user-attachments/assets/cea49e33-782b-4585-b77d-e84eddbe7f47)
+
 ## For Content Creators
 If You Are Making A Video On My Ranks Pack!
 You Should Give me Credit In Your Video and in That video Descriptions!
