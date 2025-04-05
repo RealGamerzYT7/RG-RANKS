@@ -124,3 +124,6 @@ Want Your Own Custom Ranks With Other Design And Colours? I Can Make It For You.
 Join My Discord If U Have Any Problem With The Pack. I Can Help You!
 https://discord.gg/VrpQXTnXMM
 ![20240812_233727](https://github.com/user-attachments/assets/f1b09aa1-b47a-4c6d-b540-f7c3b5eea143)
+
+# Download From Here!
+https://mcpedl.com/rgranksv1/
