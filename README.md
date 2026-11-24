@@ -70,6 +70,3 @@ https://tpi.li/kAaI7nI
 
 PREFIXES
 https://tpi.li/1MWRV92
-
-Ranks Prefixes You Download It Here!
-Check Releases!
