@@ -59,7 +59,7 @@ https://discord.gg/VrpQXTnXMM
 ![20240812_233727](https://github.com/user-attachments/assets/f1b09aa1-b47a-4c6d-b540-f7c3b5eea143)
 
 # Download From Here!
-https://rgranks.xyz
+https://realgamerzyt7.github.io/-RealGamerzYT7.github.io/
 
 Ranks Prefixes You Download It Here!
 Check Releases!
