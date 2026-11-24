@@ -8,8 +8,6 @@ https://tpi.li/kAaI7nI
 PREFIXES
 https://tpi.li/1MWRV92
 
-## Official Website!
-# https://realgamerzyt7.github.io/-RealGamerzYT7.github.io/
 
 This is a Ranks Resources Pack Made For Mcpe/Mcbe and java with this resource pack u can show ranks textures in your minecraft server or in a world!
 This Is A Totally 100% Free Resources Pack Always Free.
