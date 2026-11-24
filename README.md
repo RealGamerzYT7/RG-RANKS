@@ -64,7 +64,14 @@ https://discord.gg/VrpQXTnXMM
 ![20240812_233727](https://github.com/user-attachments/assets/f1b09aa1-b47a-4c6d-b540-f7c3b5eea143)
 
 # Download From Here!
-https://realgamerzyt7.github.io/-RealGamerzYT7.github.io/
+JAVA 
+https://tpi.li/EBT3rt0T
+
+BEDROCK/MCPE
+https://tpi.li/kAaI7nI
+
+PREFIXES
+https://tpi.li/1MWRV92
 
 Ranks Prefixes You Download It Here!
 Check Releases!
