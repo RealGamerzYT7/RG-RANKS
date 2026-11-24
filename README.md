@@ -1,7 +1,12 @@
-# RG DEVELOPER!
+# RG RANKS 
+JAVA 
+https://tpi.li/EBT3rt0T
 
-# RG-RANKS
-![file](https://github.com/user-attachments/assets/1e3c6c81-0f48-4e99-98b1-263072b2a21d)
+BEDROCK/MCPE
+https://tpi.li/kAaI7nI
+
+PREFIXES
+https://tpi.li/1MWRV92
 
 ## Official Website!
 # https://realgamerzyt7.github.io/-RealGamerzYT7.github.io/
