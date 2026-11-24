@@ -1,4 +1,7 @@
 # RG RANKS 
+
+<img width="844" height="159" alt="1000090968" src="https://github.com/user-attachments/assets/aa303236-843a-42f1-a1c9-dae8040e8ee9" />
+
 JAVA 
 https://tpi.li/EBT3rt0T
 
